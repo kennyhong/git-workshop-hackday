@@ -8,4 +8,7 @@ Job security
 
 ## Hobbys
 
+Game dev
+Board Games / Card Games
+Biking
 Sleeping
